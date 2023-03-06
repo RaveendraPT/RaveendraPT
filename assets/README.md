@@ -14,4 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Listning to music
 -->
-Contact Me |Facebook(https://www.facebook.com/raveendra.thudugala?mibextid=ZbWKwL)|Intagram(https://www.facebook.com/raveendra.thudugala?mibextid=ZbWKwL)|
+Contact Me |Facebook (https://www.facebook.com/raveendra.thudugala?mibextid=ZbWKwL)| Intagram (https://www.facebook.com/raveendra.thudugala?mibextid=ZbWKwL)|
